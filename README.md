@@ -1,1 +1,1 @@
-✨ How to reach me: melerana@mail.ru or telegram: @sentossa
+✨ How to reach me: melerana@mail.ru or telegram: @sentossa 🐝
